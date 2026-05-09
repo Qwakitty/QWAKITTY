@@ -3,7 +3,7 @@
  
 ⠀ ֺ    㞫     ࣭   ⠀﹙𝘈𝘳𝘴.﹚
  
-☆゙      ۪  ㅤ<a href="https://t.me/underverse_0">info</a>      ࣪ ྀ      ࡛       🍙    𓂃
+☆゙      ۪  ㅤ<a href="https://guns.lol/qwakitty">more social media and other</a>      ࣪ ྀ      ࡛       🍙    𓂃
  
 爱    ࿁ ⠀ ˚⠀    ︩︪ ׅ𝘦𝘯𝘧𝘫.⠀⠀ ೀ⠀ ⠀ꞌꞋ ࣪
 
