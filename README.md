@@ -12,7 +12,7 @@
 ╰━ #ɪ’ᴍ ʀᴜssɪᴀɴ-sᴘᴇᴀᴋɪɴɢ ʙᴜᴛ ᴍʏ ᴇɴɢʟɪsʜ ɪs ᴀᴄᴛᴜᴀʟʟʏ ᴘʀᴇᴛᴛʏ ᴅᴇᴄᴇɴᴛ sᴏ ᴛʜᴇ ᴄᴏɴᴠᴏ ᴡᴏɴ’ᴛ ʙᴇ ᴀᴡᴋᴡᴀʀᴅ ʟᴍᴀᴏ
 
 <div align="left">
-  <img src="<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/e44b445e-7527-40dd-b5f7-a6fb9153ecca" />
+  <img src="https://i.pinimg.com/736x/47/c7/2a/47c72a8194601fb992a6790d53d31ecb.jpg" />
 ">
 
   <h2>𝐚𝐛𝐨𝐮𝐭 𝐦𝐞</h2>
