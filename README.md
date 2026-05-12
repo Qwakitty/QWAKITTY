@@ -14,7 +14,7 @@
 <table>
   <tr>
     <td>
-      <img src="https://i.pinimg.com/736x/47/c7/2a/47c72a8194601fb992a6790d53d31ecb.jpg" width="2500">
+      <img src="https://i.pinimg.com/736x/47/c7/2a/47c72a8194601fb992a6790d53d31ecb.jpg" width="4500">
     </td>
     <td>
 
