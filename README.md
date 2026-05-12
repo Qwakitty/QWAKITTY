@@ -14,7 +14,7 @@
 <table>
   <tr>
     <td>
-      <img src="https://i.pinimg.com/736x/47/c7/2a/47c72a8194601fb992a6790d53d31ecb.jpg" width="200">
+      <img src="https://i.pinimg.com/736x/47/c7/2a/47c72a8194601fb992a6790d53d31ecb.jpg" width="2500">
     </td>
     <td>
 
@@ -37,7 +37,5 @@
 *　𝙰𝚗𝚘𝚗𝚢𝚖𝚘𝚞𝚜 𝚖𝚎𝚜𝚜𝚊𝚐𝚎𝚜:https://t.me/anonaskbot?start=VfdrnHZRAF0BkIn　⠀.★
 　　　　　.　　　　　　　　　　⠀✦
 　˚　　　　　　　　　　　　　　* 
-
-    </td>
   </tr>
 </table>
