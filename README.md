@@ -38,7 +38,7 @@
 
 𝚃𝙶 𝚌𝚑𝚊𝚗𝚗𝚎𝚕 𝚠𝚒𝚝𝚑 𝚖𝚢 𝚊𝚛𝚝𝚠𝚘𝚛𝚔: https://t.me/qwakitty_0 ✩　　　　　　　.
 
-   ˚　𝚃𝙶 𝚒𝚗𝚏𝚘 𝚌𝚑𝚊𝚗𝚗𝚎𝚕: https://t.me/underverse_0　　　　　　　ﾟ　　　　　.
+   ˚　𝚃𝙶 𝚒𝚗𝚏𝚘 𝚌𝚑𝚊𝚗𝚗𝚎𝚕: https://t.me/underverse_0   　ﾟ　　　　　.
 　.⠀　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀,
 
 *　𝙰𝚗𝚘𝚗𝚢𝚖𝚘𝚞𝚜 𝚖𝚎𝚜𝚜𝚊𝚐𝚎𝚜: https://t.me/anonaskbot?start=VfdrnHZRAF0BkIn　⠀.★
